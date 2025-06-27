@@ -1,0 +1,1 @@
+The Ideation phase details
